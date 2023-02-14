@@ -8,14 +8,17 @@ C
 
 cordialíssimo: Que conforta o coração. Que mostra afabilidade ou boa vontade.
 condizente - que condiz; que está em harmonia, em proporção ou de acordo; condizente, concordante, harmônico.
+
 D
 
 destreza: Agilidade e facilidade no obrar, habilidade manual.
 diáfano - que permite a passagem da luz; transparente, límpido.
+
 E
 
 execrável: Adjetivo que se pode execrar, abominar, odiar.
 evasiva: Uma pessoa evasiva não fala claramente sobre um determinado tema, é pouco objetiva e foge de determinados assuntos, podendo provocar alguma confusão no ouvinte.
+
 F
 
 fúnebre: Relativo à morte, aos mortos ou a coisas a eles relacionadas.
