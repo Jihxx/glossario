@@ -56,6 +56,7 @@ Q
 
 
 R
+
 resignação: É o mesmo que aceitação, uma condição de estar submisso ao desejo e vontade de outra pessoa ou da ação do destino.
 
 S
