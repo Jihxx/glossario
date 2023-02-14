@@ -22,6 +22,7 @@ evasiva: Uma pessoa evasiva não fala claramente sobre um determinado tema, é p
 F
 
 Fúnebre: Relativo à morte, aos mortos ou a coisas a eles relacionadas.
+
 G
 
 
