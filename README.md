@@ -13,11 +13,13 @@ Condizente: Que condiz; que está em harmonia, em proporção ou de acordo; cond
 D
 
 Destreza: Agilidade e facilidade no obrar, habilidade manual.
+
 Diáfano - que permite a passagem da luz; transparente, límpido.
 
 E
 
 Execrável: Adjetivo que se pode execrar, abominar, odiar.
+
 Evasiva: Uma pessoa evasiva não fala claramente sobre um determinado tema, é pouco objetiva e foge de determinados assuntos, podendo provocar alguma confusão no ouvinte.
 
 F
